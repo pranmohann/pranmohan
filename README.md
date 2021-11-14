@@ -1,9 +1,9 @@
 **Welcome to the pranmohann's wiki!**
 #  Pran Mohan
-Pran Mohan was born in Banka, Bihar, India on 16 February 2002. He passed 12th by BSEB in year 2018. He completed her schooling from Tilka Manjhi Bhagalpur University and then went to the institute 'ISOEH' Kolkata, West Bengal for Diploma in CEH Advanced. He became a Certified Ethical Hacker in 2021.
+Pran Mohan was born in Banka, Bihar, India on 16 February 2002. He passed 12th by BSEB in year 2018. He completed her schooling from Tilka Manjhi Bhagalpur University and then went to the institute 'ISOEH' Kolkata, West Bengal for Diploma in CEH Advanced.
 
 # Career
-He passed 12th by BSEB in year 2018. He completed her schooling from Tilka Manjhi Bhagalpur University and then went to the institute 'ISOEH' Kolkata, West Bengal for Diploma in CEH Advanced. He became a Certified Ethical Hacker in 2021.
+He passed 12th by BSEB in year 2018. He completed her schooling from Tilka Manjhi Bhagalpur University and then went to the institute 'ISOEH' Kolkata, West Bengal for Diploma in CEH Advanced.
 
 # External Link
 * Pran Mohan on [Twitter ](https://www.twitter.com/pranmohan1nonly)
